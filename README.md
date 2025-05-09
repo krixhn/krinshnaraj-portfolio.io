@@ -1,1 +1,1 @@
-Portfolio Link - https://atharv7125.github.io/atharv_portfolio/
+Portfolio Link - https://krixhn.github.io/krinshnaraj-portfolio.io/
